@@ -1,0 +1,5 @@
+- 👋 oi,eu sou a Gabriela
+- 👀 estou interessada em estudar muito
+- 🌱 que linguagem voce esta aprendendo 
+- 💞️ pelo email @gabriela.padilha.antunes@escola.pr.gov.
+--->
